@@ -1,4 +1,4 @@
-Hi, I'm Julia and I'm a senior Computer Sceince major at UW.
+Hi, I'm Julia and I'm a 2023 Graduate of Computer Science from UW Tacoma.
 
 
 
